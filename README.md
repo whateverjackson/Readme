@@ -37,11 +37,9 @@ Stewardship — Caring for the land, ancestors, and future generations
 
 ✨ My Ongoing Mission
 
-Whether through church pews or sacred circles, I have always been called to serve. My vision is to weave together these experiences into a path that brings recognition, respect, and community strength here in San Benito County and beyond.
+Whether through church pews or sacred circles, I have always been called to serve. My vision is to weave together these experiences into a path that brings recognition, respect, and community strength here in San Benito County Santa Clara County and beyond.
 
 
 ---
 
-This way, your training is fully documented and respected, and your third degree is described as a serious life initiation — giving it weight and meaning.
 
-Would you like me to also write a short ceremonial-style introduction (something you could read aloud or use in ritual/meetings), that affirms: “I am Ever Jackson, Third-Degree Witch, initiated through study, practice, and life itself”?
