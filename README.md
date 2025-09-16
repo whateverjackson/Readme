@@ -1,7 +1,7 @@
 # Readme
 🌿 About Me
 
-Hello, and welcome. My name is Ever Jackson, and my life has been shaped by two powerful callings: my early Christian foundation and my present witchcraft practice. Both have taught me that service, courage, and care for community are sacred responsibilities.
+Hello, and welcome. My name is brandie raquel jackson ( Ever Jackson), and my life has been shaped by two powerful callings: my early Christian foundation and my present witchcraft practice. Both have taught me that service, courage, and care for community are sacred responsibilities. The First sate recognized california state wicca witch with the San Benito county state Probation deptartment.
 
 ✝️ My Mission in Life: Christian Roots
 
