@@ -2,6 +2,259 @@
 🌿 About
 
 
+
+
+🌿 About Me
+
+
+Hello, and welcome. My name is Brandie Raquel Tibbitts , freitas, Jackson, wooten. (Ever Jackson) Born to mother: Sharon Kay Tibbitts on 09/14/1972 Father: unknown. In Watsonville California U.S.A. Mother to Guy w Jackson Born 08/18/1989 in sj ca 09/18/1989 and Edward Patrick Jackson Born in sj ca on 03/11/1993. , and my life has been shaped by two powerful callings: my early Christian foundation and my present witchcraft practice. Both have taught me that service, courage, and care for community are sacred responsibilities.
+
+
+✝️ My Mission in Life: Christian Roots
+
+
+My journey began in the 1980s as a Missionette at Sunnyslope Christian Center, where I learned discipline, leadership, and devotion. Later, I attended Calvary Christian School, which deepened my commitment to faith, integrity, and living a life of service. Those years instilled in me the belief that true spiritual practice is not only about prayer or ritual, but also about helping others, standing for justice, and offering compassion without hesitation.
+
+
+🔮 My Witchcraft Practice
+
+
+Today, my path has grown into earth-centered witchcraft, where I carry forward the same mission of service in a new way.
+
+
+I earned my First Degree in Witchcraft through SacredmistAcademy.com, my Second Degree through Spell8.com, and completed my Third Degree through a year of dedicated “wicca” initiation — a lived spiritual trial that taught me resilience, discipline, and deeper communion with the sacred.
+
+
+Now recognized as a Third-Degree Witch, I hold the responsibility of teaching, leading, and guiding others in their spiritual journeys. I am also working to establish myself as the first recognized witch in San Benito County Santa Clara County,  California, U.S.A.
+
+
+Community rituals that honor nature and ancestry
+
+
+Educational workshops for those seeking knowledge of spiritual practice
+
+
+Spiritual guidance and support rooted in inclusivity, consent, and respect
+
+
+
+
+My witchcraft practice is not a rejection of my Christian past — it is a continuation of my lifelong calling to uplift, protect, and serve. Where my Christian foundation gave me faith and structure, my witchcraft practice gives me connection to earth, spirit, and community.
+
+
+🌟 Core Values
+
+
+Service — Devotion to uplifting others
+
+
+Integrity — Walking with honesty and accountability
+
+
+Inclusivity — Respecting all spiritual paths and people
+
+
+Stewardship — Caring for the land, ancestors, and future generations
+
+
+
+
+✨ My Ongoing Mission
+
+
+Whether through church pews or sacred circles, I have always been called to serve. My vision is to weave together these experiences into a path that brings recognition, respect, and community strength here in San Benito County and Santa Clara County and beyond.
+
+
+
+
+---
+
+
+This way, your training is fully documented and respected, and your third degree is described as a serious life initiation — giving it weight and meaning.
+
+
+“I am Ever Jackson, Third-Degree Witch, initiated through study, pract
+ice, and life itself”?
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ---
 
 
