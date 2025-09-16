@@ -11,9 +11,9 @@ My journey began in the 1980s as a Missionette at Sunnyslope Christian Center, w
 
 Today, my path has grown into earth-centered witchcraft, where I carry forward the same mission of service in a new way.
 
-I earned my First Degree in Witchcraft through FiguredMythAcademy.com, my Second Degree through Spell8.com, and completed my Third Degree through a year of dedicated “baby life” initiation — a lived spiritual trial that taught me resilience, discipline, and deeper communion with the sacred.
+I earned my First Degree in Witchcraft through sacredmistAcademy.com,as student beedazzeled. my Second Degree through Spell8.com, and completed my Third Degree through a year of dedicated “wicca missionette” initiation — a lived spiritual trial that taught me resilience, discipline, and deeper communion with the sacred.
 
-Now recognized as a Third-Degree Witch, I hold the responsibility of teaching, leading, and guiding others in their spiritual journeys. I am also working to establish myself as the first recognized witch in San Benito County, California, offering:
+Now recognized as a Third-Degree Witch, I hold the responsibility of teaching, leading, and guiding others in their spiritual journeys. I am also working to establish myself as the first recognized witch in San Benito County, and Santa Clara County California, U.S.A. 
 
 Community rituals that honor nature and ancestry
 
